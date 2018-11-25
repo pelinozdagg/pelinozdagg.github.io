@@ -1,1 +1,0 @@
-# pelinozdagg.github.io
